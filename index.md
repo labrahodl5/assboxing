@@ -2,7 +2,7 @@
 
 <html>
   <h2>you can subscribe by contacting LABRAHODL </h2> <p><a href="mailto:labrahodl@memefactorytm.com">contact LABRAHODL heer</a></p>
-  <h2>classes starting this summer!</h2>
+  <h2>classes starting this summer!(YES I'M TALKING TO YOU @CHAINFORS</h2>
   
   Personalized ass boxing classes for you! We get the ass that meets your hands requirements!
   
